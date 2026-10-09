@@ -1,0 +1,2 @@
+# premium-clock-gear-cut-001-clock-gear-tooth-profile-cutti
+Cutting clock gears by hand means guessing at tooth profiles—wasting materials, ruining projects, and losing hours to trial-and-error. The Clock Gear Tooth Profile Cutting Guide eliminates the guesswork with a pre-built Notion template that gives you exact specifications for every gear tooth you cut.  This template standardizes your gear cutting wo
